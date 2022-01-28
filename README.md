@@ -6,4 +6,4 @@ To work more actively with me, I suggest you join my Discord server at the addre
 Have a nice day, and a nice code !
 
 
-Discord : 
+Discord : https://discord.gg/2mAwb9NbEc
